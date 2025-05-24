@@ -1,1 +1,0 @@
-# Soy el participante: OSCAR
