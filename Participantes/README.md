@@ -1,3 +1,0 @@
-# Participante
-
-## Daniel Vega 
