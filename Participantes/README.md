@@ -1,3 +1,0 @@
-# Participantes
-
-Soy participante Marco
